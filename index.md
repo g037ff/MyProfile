@@ -2,7 +2,6 @@
 ## 山口大学工学部知能情報工学科
 
 * 出身：奈良県
-* 出身校：天理高校
 * 部活
   * 大学：合気道同好会
   * 中学・高校:バスケットボール部
@@ -16,6 +15,11 @@
 
 *山大生ご用達の店↓
 
+ *祐三ラーメン
 ![祐三ラーメン](https://ximg.retty.me/crop/s600x600/-/retty/img_repo/l/01/19816092.jpg)
+ *ジャンボチキンカツ
 ![ジャンボチキンカツ](https://tblg.k-img.com/restaurant/images/Rvw/61003/640x640_rect_61003451.jpg)
+ *すき家の牛丼
 ![すき家の牛丼](http://i.gzn.jp/img/2009/08/12/gyudon_king_review/P1170286.JPG)
+ *マウンティングビッグ
+![マウンテンビッグ](https://c-r.gnst.jp/aj8n73m70000/img/y045814v.jpg?t=1563844069)
