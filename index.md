@@ -12,6 +12,7 @@
 ![大量の鹿](https://blog-001.west.edge.storage-yahoo.jp/res/blog-93-df/blue_bells_garden/folder/626231/97/25939197/img_5?1405697855)
 
 *山大生ご用達の店↓
+
 ![祐三ラーメン](https://ximg.retty.me/crop/s600x600/-/retty/img_repo/l/01/19816092.jpg)
 ![ジャンボチキンカツ](https://tblg.k-img.com/restaurant/images/Rvw/61003/640x640_rect_61003451.jpg)
 ![すき家の牛丼](http://i.gzn.jp/img/2009/08/12/gyudon_king_review/P1170286.JPG)
