@@ -11,6 +11,9 @@
 
 ![大量の鹿](https://blog-001.west.edge.storage-yahoo.jp/res/blog-93-df/blue_bells_garden/folder/626231/97/25939197/img_5?1405697855)
 
+
+
+
 *山大生ご用達の店↓
 
 ![祐三ラーメン](https://ximg.retty.me/crop/s600x600/-/retty/img_repo/l/01/19816092.jpg)
